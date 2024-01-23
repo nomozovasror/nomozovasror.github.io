@@ -1,1 +1,0 @@
-# nomozovasror.github.io
